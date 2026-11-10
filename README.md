@@ -1,0 +1,1 @@
+# gaga-concours-director
